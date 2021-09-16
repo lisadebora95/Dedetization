@@ -1,0 +1,2 @@
+# Dedetization
+Fumigation is a system of pest monitoring or the removal of injurious micro-organisms by completely  appointment an area with aerial pesticides—or fumigants—to suffocate or toxic the pests within.  It is used to monitoring pests in buildings (structural fumigation), soil, grain, and produce, and  is also used time processing of goods to be imported or exported to prevent disposal of exotic  organisms. This system also affects the construction itself, affecting pests that inhabit the physic  structure, such as woodborers and drywood termites.
